@@ -1,1 +1,1 @@
-# Cheburashka Sultanova and Motuga
+# Cheburashka Sultanova and Motigullin
